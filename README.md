@@ -69,11 +69,11 @@ To revolutionize cybersecurity education by creating immersive, team-based learn
 
 ---
 
-## 📬 Let’s Connect
+##  Let’s Connect
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/nouri-baher/)  
-- 📧 nouri.baher19@gmail.com  
-- 🏠 Based in Sweden, collaborating globally
+-  [LinkedIn](https://www.linkedin.com/in/nouri-baher/)  
+-  nouri.baher19@gmail.com  
+-  Based in Sweden, collaborating globally
 
 ---
 
